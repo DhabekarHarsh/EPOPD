@@ -5,3 +5,5 @@
 ![image](https://github.com/DhabekarHarsh/EPOPD/assets/86256300/61ecf942-12b9-44b6-93f6-32336a975e92)
 ![image](https://github.com/DhabekarHarsh/EPOPD/assets/86256300/d1bce23f-0156-4fcf-96c3-dd9ca1e9d36c)
 ![image](https://github.com/DhabekarHarsh/EPOPD/assets/86256300/1f4c1b1e-db9d-412b-9d0a-ec7c23ecb811)
+![image](https://github.com/DhabekarHarsh/EPOPD/assets/86256300/69cce888-6c11-452e-9811-a123cbcf9647)
+![image](https://github.com/DhabekarHarsh/EPOPD/assets/86256300/d0e01077-1a77-430d-9f92-3a0ad4f83f81)
